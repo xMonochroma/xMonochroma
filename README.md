@@ -4,7 +4,7 @@
 
 #
 # **▷ About Me:**
-**⟣ Illustrator / Artist / Gamedev<br>⟣ He/Him <br>⟣ ENG/TR <br>⟣ 18 years old <br>⟣ January 23 <br>⟣ Currently on a break, I wont be able to code or draw things until summer**
+**⟣ Illustrator / Artist / Gamedev<br>⟣ He/Him <br>⟣ ENG/TR <br>⟣ 18 years old <br>⟣ Currently on a break, I wont be able to code or draw things until summer**
 
 
 # **▷ Social Links:**
